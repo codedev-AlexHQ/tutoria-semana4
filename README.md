@@ -3,9 +3,10 @@
 **-Andres Huancahuari Quiñonez**
 
 **-Carlos Arturo Bullon Supanta**
+
 # 🌱 Semana 4: Fortalezas y Debilidades Heredadas
 
-## ✍️ Parte 1: Reflexión personal
+## ✍️ Parte 1: Reflexión personal – Andrés
 
 ### 🧠 ¿Qué límites mentales siento que cargo hoy?
 
@@ -31,16 +32,16 @@ Siento que he heredado cierta **dificultad para expresar emociones**. En mi fami
 
 ---
 
-## 💬 Parte 2: Análisis de otra persona
+## 💬 Parte 2: Análisis de otra persona – Arturo
 
-Voy a analizar a mi amiga **Laura**, con quien tengo una relación muy cercana.
+Voy a analizar a mi amigo **Arturo**, con quien tengo una relación muy cercana.
 
 ### 🌟 Fortalezas heredadas
 
-Laura ha heredado una **alegría contagiosa** y una **gran capacidad de adaptación**. Su madre siempre ha sido una mujer muy carismática y optimista, y Laura también tiene ese brillo que hace sentir cómodas a las personas a su alrededor. ✨ Además, tiene una habilidad impresionante para reinventarse ante los cambios. Esa flexibilidad emocional le permite avanzar, incluso en los momentos difíciles.
+Arturo ha heredado una **alegría contagiosa** y una **gran capacidad de adaptación**. Su madre siempre ha sido una persona muy carismática y optimista, y Arturo también tiene ese brillo que hace sentir cómodas a las personas a su alrededor. ✨ Además, tiene una habilidad impresionante para reinventarse ante los cambios. Esa flexibilidad emocional le permite avanzar, incluso en los momentos difíciles.
 
 ---
 
 ### 🧩 Debilidades heredadas
 
-Sin embargo, también noto que ha heredado cierta **autoexigencia extrema**. Como su familia siempre puso énfasis en el éxito académico y profesional, Laura siente que no puede fallar. A veces se olvida de descansar y se carga demasiado. 😞 También ha heredado el miedo a “no ser suficiente”, algo que muchas veces la hace dudar de sus decisiones. Pero lo bueno es que está trabajando en eso con mucha conciencia. 🌿
+Sin embargo, también noto que ha heredado cierta **autoexigencia extrema**. Como su familia siempre puso énfasis en el éxito académico y profesional, Arturo siente que no puede fallar. A veces se olvida de descansar y se carga demasiado. 😞 También ha heredado el miedo a “no ser suficiente”, algo que muchas veces lo hace dudar de sus decisiones. Pero lo bueno es que está trabajando en eso con mucha conciencia. 🌿
